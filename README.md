@@ -1,2 +1,1 @@
-# Faisal-Khan-
-G firoj
+faisalkhan25451@gmail.com
